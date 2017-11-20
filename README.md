@@ -20,7 +20,7 @@ Phổ biến nhất tại hà nội và các tỉnh thành khác hiện nay là 
 Các loại két chống cháy, két an toàn, két khách sạn cao cấp, két sắt sử dụng trong ngân hàng, két sắt mini có khóa điện tử, và những sản phẩm tủ hồ sơ, tủ sắt chống cháy tốt nhất.
  
 
-Showroom [két sắt](https://ketsathanoi.com) tại hà nội chuyên cung cấp những sản phẩm của Công ty thiết bị vật tư ngân hàng và an toàn kho quỹ việt nam. 
+Showroom két tại hà nội chuyên cung cấp những sản phẩm của Công ty thiết bị vật tư ngân hàng và an toàn kho quỹ việt nam. 
 
 Với phương châm cung cấp cho khách hàng những mặt hàng két sắt gia đình, công sở, văn phòng, ngân hàng, khách sạn tốt nhất. 
 
