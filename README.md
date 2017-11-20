@@ -13,13 +13,14 @@ Két sắt chống cháy cao cấp hiện nay có rất nhiều loại khác nha
 Các loại khóa két cũng được cải thiện hơn rất nhiều nhờ những công nghệ hiện đại. 
 
 Phổ biến nhất tại hà nội và các tỉnh thành khác hiện nay là các sản phẩm khóa an toàn dạng khóa cơ, khóa vân tay, khóa điện tử, hoặc sử dụng hệ thống đa khóa phức tạp.
+![két bạc chống cháy hà nội](https://ketsathanoi.com/public/source/ket-sat-van-phong/KS80N-BSC-TL/1370/KS80N-Brown-Series-C-ThaiLan(2).jpg)
 
-##Hiện nay showroom két sắt chống cháy hà nội đang cung cấp các sản phẩm như:
+## Hiện nay showroom két sắt chống cháy hà nội đang cung cấp các sản phẩm như:
 
 Các loại két chống cháy, két an toàn, két khách sạn cao cấp, két sắt sử dụng trong ngân hàng, két sắt mini có khóa điện tử, và những sản phẩm tủ hồ sơ, tủ sắt chống cháy tốt nhất.
  
 
-Showroom [két sắt](http://ketsathanoi.com) tại hà nội chuyên cung cấp những sản phẩm của Công ty thiết bị vật tư ngân hàng và an toàn kho quỹ việt nam. 
+Showroom [két sắt](https://ketsathanoi.com) tại hà nội chuyên cung cấp những sản phẩm của Công ty thiết bị vật tư ngân hàng và an toàn kho quỹ việt nam. 
 
 Với phương châm cung cấp cho khách hàng những mặt hàng két sắt gia đình, công sở, văn phòng, ngân hàng, khách sạn tốt nhất. 
 
@@ -53,6 +54,7 @@ các loại ket sat gia re thông thường sử dụng các hệ thống khóa 
 
 Các loại khóa hiện đại như khóa két vân tay, khóa két điện tử, khóa két đổi mã, khóa két kếp hợp. Mỗi loại hệ thống an toàn đều có bộ sử lý khác nhau nhưng đều tập trung vào đảm bảo an toàn cho tài sản.
 
+![showroom két sắt hà nội ](https://ketsathanoi.com/public/source/ket-sat-van-phong/KS80N-BSC-TL/1370/KS80N-Brown-Series-C-ThaiLan(1).jpg)
 
 két bạc khóa vân tay là dòng sản phẩm sử dụng hệ thống vân tay làm mã chủ thông thường bao gồm 01 mã mastercode và các mã con. Két sắt vân tay đem đến sự tiện lợi cho khách hàng vì nó đơn giản chỉ cần quét vân tay là đã có thể mở khóa.
 
@@ -99,3 +101,17 @@ Ngoài các loại khóa két thông thường kể trên thị các loại két
 Hơn tất cả khi lựa chọn sản phẩm két sắt két bạc bạn hãy cân nhắc những ưu tiên hàng đầu về sản phẩm của mình để chọn mua
 
 Chúc bạn sẽ tìm được chiếc két sắt két bạc ưng ý nhất với mình.
+
+Nếu bạn đang có nhu cầu mua két sắt.
+
+Hãy chọn ngay cho mình một chiếc két sắt khách sạn phù hợp tại website củachúng tôi hoặc liên hệ với chúng tôi qua số điện thoại: 0982770404 để được tưvấn hoàn toàn miễn phí
+
+Két sắt hà nội – Showroom két sắt cao cấp tại hà nội
+
+Địa chỉ: Nguyên trãi, thanh xuân, Hà nội
+
+Hotline: 0982770404 
+
+Website: [ketsathanoi.com](https://ketsathanoi.com)
+
+Facebook: [facebook.com/kethanoi](https://www.facebook.com/kethanoi/)
